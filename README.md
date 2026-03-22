@@ -1,0 +1,86 @@
+# 放課後クライマックスガールズ – 乱舞る
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Fighting days!
+Fight!
+Fighting days!
+時計の針が踊り出した
+乗り遅れるな
+頭からつま先まで
+メイクアップでドレスコード
+神がかれ 道よ開け
+今 show will start
+待ってるだけじゃ変われないの
+このエンジンをTurn on!!
+これが私のstage
+エビバディ乱舞して
+壊れるまで踊れなきゃ
+切り捨て御免
+成れの果て bad end
+永遠の刹那よ燃えろ
+研ぎ澄まして(さあ)
+あなたのsword(now)
+勝敗は(一瞬の)
+Showdownで(決着ね)
+Fight the game!!
+Fight fight the game!!
+Fighting days!
+Fight!
+Fighting days!
+異次元 倍々ゲーム
+お茶の子さいさいね
+打ち上げ花火のように
+Bang! Bang!
+壊れたって仕方ない
+こんな時代をサヴァイヴ
+誰かの真似 何かのフリ
+してる暇はない
+今日のカードは
+オールスターでFLASH
+さらば昨日までの
+ネガティブ!
+これが私のstage
+エビバディ乱舞して
+壊れるまで踊れなきゃ
+切り捨て御免
+成れの果て bad end
+永遠の刹那よ燃えろ
+研ぎ澄まして(さあ)
+あなたのsword(now)
+勝敗は(一瞬の)
+Showdownで(決着ね)
+Fight the game!!
+Fight fight the game!!
+バトルはフルスロットルで上昇
+フュエルはあの頃の衝動
+360度 全方位ロックオン
+オーレディ レディー
+戦うDay by day
+朽ち果ててもいいの
+すべて出し切れたのなら
+走って 走って さあ
+信じてきたこの道を
+この人生をPlay
+すべて具現化して
+自由自在に遊べなきゃ
+勿体無いね
+今こそ Free your pain
+自分らしく輝ける
+私のstage
+エビバディ乱舞して
+壊れるまで踊れたら
+一発昇天
+すなわち Happy end
+永遠なんていらないわ
+焚き付けて(さあ) あなたのSoul(now)
+勝敗は(一瞬の) Show timeで(決着ね)
+Fight the game!!
+Fight fight the game!!
+Fight the game!!
+Fight fight the game!!
+Fighting days!
+Fight!
+Fighting days!
+```
